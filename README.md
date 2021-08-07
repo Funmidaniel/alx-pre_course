@@ -1,1 +1,1 @@
-We never giving up
+Collaboration with other team members
